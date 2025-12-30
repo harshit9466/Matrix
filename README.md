@@ -128,14 +128,6 @@ Register for events at: [https://apps.veltech.edu.in/registration/matrix/reg/](h
 - Any form of vulgarity or plagiarism will lead to immediate disqualification
 - Judges' decisions are final
 
-## Contact
-
-### Student Coordinators
-- **Harini V:** 8122832799
-- **Sugumar Suman B:** 7094086516
-- **Nishanth V:** 6381065781
-- **Manusri P:** 7538821574
-
 ## Social Media
 
 - [Twitter](https://x.com/veltechofficial)
